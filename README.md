@@ -11,5 +11,4 @@
 - EU AMO FALAR🙇‍♀️
 - E eu sou apaixonada por qualquer coisa do Homem Aranha!!!
 ![](https://media.tenor.com/J-RUH86zpWcAAAAM/dodging-spider-man.gif)
--->
-                                                                                                                                                                   
+                                                                                                                                                        
